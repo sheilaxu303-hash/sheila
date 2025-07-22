@@ -68,7 +68,7 @@ Lisensi yang Anda beli bersifat personal dan terikat pada email pembelian Anda.
 
 ---
 
-Twitter Demo: [Drakorku](https://x.com/Drakorku99)
+Twitter Demo: [Akun Demo](https://x.com/fachrydnasution)
 
 ---
 ---
@@ -142,4 +142,4 @@ The license you purchase is personal and is bound to your purchase email.
 
 ---
 
-Twitter Demo: [Drakorku](https://x.com/Drakorku99)
+Twitter Demo: [Akun Demo](https://x.com/fachrydnasution)
